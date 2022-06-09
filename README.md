@@ -1,0 +1,1 @@
+# Gigabyte-Z690-Gaming-X
